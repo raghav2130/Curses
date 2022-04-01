@@ -18,7 +18,8 @@ And for general purpose only 🤫🤭)
 - I hope you never get a bus seat
 - I hope that there is a hole in your sock perfectly fitting with your big toe to slide through.😂😂
 - I hope that the next time you hang a picture frame its slightly wanky.😂
-- I hope ...
+- I hope your shoes gets stepped on everytime your you go out.
+- I hope 
 
 ##
 ## Contributions
