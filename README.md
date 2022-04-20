@@ -20,7 +20,9 @@ And for general purpose only 🤫🤭)
 - I hope that the next time you hang a picture frame its slightly wanky.😂
 - I hope your shoes gets stepped on everytime your you go out.
 - I hope your ex never comes back.
-- I hope
+- I hope you get lonely 7 days a week.
+- i hope you suck at conversations
+- i hope 
 
 ##
 ## Contributions
