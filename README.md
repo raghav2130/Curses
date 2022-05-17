@@ -20,7 +20,8 @@ And for general purpose only 🤫🤭)
 - I hope that there is a hole in your sock perfectly fitting with your big toe to slide through.😂😂
 - I hope that the next time you hang a picture frame its slightly wanky.😂
 - I hope your favourite shoes gets stepped on everytime you go out.
-- i hope ...
+- i hope your crush doesn't give a damn about you.hehe😅
+- i hope ... continues
 
 ##
 ## Contributions
