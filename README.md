@@ -1,7 +1,7 @@
 
 #  🐍 Curses
 
-Let's curse this page together 
+Let's curse this struggle together.
 
 ## ⚠ Disclaimer   
 
